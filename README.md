@@ -1,0 +1,1 @@
+# Shares-Account-XM-Tipe-Account-Trading-XM-TradeFaster
